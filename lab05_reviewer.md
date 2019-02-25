@@ -1,5 +1,5 @@
 Present from 4pm-stock trading: Eric(reviewee), Sean(reviewee helper), Wesley, Shirlyn, Andrew, and Frank. (Every member of the group).
-Present from 6pm-stock trading: Max as Reviewer. We were not told that we would need another member of our group as a helper, and since we were working between two sections, it wasn't possible to get another member over.
+Present from 6pm-stock trading: Maxton Ginier as Reviewer. We were not told that we would need another member of our group as a helper, and since we were working between two sections, it wasn't possible to get another member over.
 
 I really enjoyed the UI of the stock layout. I think it was very cool how you laid them out in a table. It made looking for stocks very easy.
 Especially with the search feauture.
